@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>暑期电影票房突破120亿，国产影片包揽票房前十。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%</h3><br><p>海大集团研发体系：水产饲料配方技术的持续迭代能力。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>AI代码助手普及，程序员开发效率平均提升40%</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>北约峰会发布新战略文件，调整东翼防御部署</h3><br><p>中芯国际管理层优势：半导体制造龙头的经营效率提升。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>央行新增5000亿元支小再贷款，精准支持小微企业发展</h3><br><p>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>天合光能N型技术优势：光伏行业技术迭代下的领先地位</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>中国女篮亚洲杯夺冠，时隔12年重登亚洲之巅</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起</h3><br><p>“双减”成效显著，校外违规培训机构清零率超98%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>社保基金现身存储模组龙头，AI存储产品出货量超预期</h3><br><p>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>美的集团股价创年内新高，家电出口数据亮眼</h3><br><p>全球跨境旅游人次上半年突破7亿，旅游业全面复苏。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生</h3><br><p>美联储降息周期开启，北向资金单周净流入超300亿。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>全球粮食价格指数连续6个月回落，粮食危机压力缓解</h3><br><p>全国首套房住房贷款"认房不认贷"政策全面落地。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>希腊经济强劲复苏，成为欧元区增长明星。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>国电南瑞电网自动化优势：国内电网信息化龙头的价值</h3><br><p>天顺风能异动拉升4.6%，风电塔架订单高增。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓</h3><br><p>教育部新增37个高校专业，聚焦人工智能、生物医药等前沿领域。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全国夜间经济规模上半年突破18万亿元，成为消费新增长点</h3><br><p>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>全国青少年冰雪赛事覆盖南方城市，冰雪运动南展西扩。<br><br> | 来源：<code>www.77ttk.com
