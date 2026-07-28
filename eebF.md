@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国旅游志愿服务队伍超百万，提升游客出行体验</h3><br><p>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%。<br><br> | 来源：<code>https://nutong.com.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>存款利率市场化改革深化，银行负债成本持续优化。<br><br> | 来源：<code>https://nuwang-tiaojiao.com.cn
+</code></p><br><br><h3>2026年经济运行稳中向好，高质量发展迈出坚实步伐</h3><br><p>东数西算工程新节点开工，IDC算力板块走强。<br><br> | 来源：<code>https://nuwangtiaojiao.com.cn
+</code></p><br><br><h3>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳</h3><br><p>鱼类产品价格上调10%，渔业板块迎来行情。<br><br> | 来源：<code>https://nuxingluoti.com.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://nuyouwang.com.cn
+</code></p><br><br><h3>教育大模型落地全国万所学校，个性化辅导覆盖千万学生</h3><br><p>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮。<br><br> | 来源：<code>https://od-sports-pro.com.cn
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>福州三坊七巷暑期客流超1500万，闽派文旅产品热销。<br><br> | 来源：<code>https://oftuun.cn
+</code></p><br><br><h3>固德威户用储能爆发，单季业绩预告超预期</h3><br><p>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升。<br><br> | 来源：<code>https://open-site-vip.com.cn
+</code></p><br><br><h3>中国交建港口航道优势：全球港口建设龙头的核心壁垒</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>https://ou-meirihan.cn
+</code></p><br><br><h3>房地产市场新政落地，多地首套房贷款利率降至3.2%以下</h3><br><p>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大。<br><br> | 来源：<code>https://ou-meirihan.com.cn
+</code></p><br><br><h3>紫光国微异动拉升5.6%，特种芯片需求持续高增</h3><br><p>比亚迪全产业链布局：从电池到整车的垂直整合优势。<br><br> | 来源：<code>https://oumei-a-v.com
+</code></p><br><br><h3>圣邦股份放量上涨4.6%，模拟芯片国产替代加速</h3><br><p>长征国家文化公园全面建成，红色旅游年接待人次突破15亿。<br><br> | 来源：<code>https://oumei-mv.com.cn
+</code></p><br><br><h3>全国非遗文旅体验点破2000个，非遗游成暑期新潮流</h3><br><p>新疆交建一带一路优势：新疆区域基建的长期成长逻辑。<br><br> | 来源：<code>https://oumeiguochanyazhou.cn
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>招商银行沿20日均线上行，稳健标的的持仓节奏。<br><br> | 来源：<code>https://oumeijingpin.cn
+</code></p><br><br><h3>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%</h3><br><p>世界贸易组织第13届部长级会议召开，达成多项多边协议。<br><br> | 来源：<code>https://oumeijingpin.com.cn
+</code></p><br><br><h3>上半年出境游人次突破8000万，跨境旅游全面复苏</h3><br><p>天齐锂业触底反弹，锂矿价格企稳带动板块情绪。<br><br> | 来源：<code>https://oumeiquyi.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>市场情绪疯狂时要冷静，情绪低迷时要保持信心。<br><br> | 来源：<code>https://oumeiwang.com.cn
+</code></p><br><br><h3>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善</h3><br><p>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局。<br><br> | 来源：<code>https://oumeiwuma.com.cn
+</code></p><br><br><h3>全国健身气功交流大赛举办，覆盖超百万中老年爱好者</h3><br><p>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练。<br><br> | 来源：<code>https://oumeiyiquerqu.cn
+</code></p><br><br><h3>全国国家森林公园数量增至1000个，生态旅游蓬勃发展</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://oumeiyiquerqu.com.cn
