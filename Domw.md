@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展。<br><br> | 来源：<code>https://jinmantiantangwangye.com.cn
+</code></p><br><br><h3>吉利汽车新能源占比超50%，前三季度业绩预增超30%</h3><br><p>自动驾驶大模型迭代，端到端算法落地量产车型。<br><br> | 来源：<code>https://jinmantiantangwangyeban.com.cn
+</code></p><br><br><h3>中科院紫东太初大模型2.0发布，全模态能力国际领先</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://jinmantiantangwangyebanlianjie.com.cn
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>外资准入政策放宽，外资偏好标的全线拉升。<br><br> | 来源：<code>https://jinmantiantangzaixian.com.cn
+</code></p><br><br><h3>新宙邦电解液业务优势：锂电电解液龙头的盈利稳定性</h3><br><p>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升。<br><br> | 来源：<code>https://jinmantiantangzaixianguankan.com.cn
+</code></p><br><br><h3>农产品深加工扶持政策，农产品加工标的全线拉升</h3><br><p>超160家机构到访锂电回收龙头，回收处理产能利用率超90%。<br><br> | 来源：<code>https://jinmantianwang.com.cn
+</code></p><br><br><h3>天合光能N型技术优势：光伏行业技术迭代下的领先地位</h3><br><p>国内AI算力租赁市场规模破千亿，中小企业轻松获取算力。<br><br> | 来源：<code>https://jinmanwang.com.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>https://jinpiantiantang.com.cn
+</code></p><br><br><h3>中国男篮重返奥运会八强，世界排名提升至第12位</h3><br><p>儿童用药扶持政策，儿科医药标的全线拉升。<br><br> | 来源：<code>https://jinpingmei-new.com.cn
+</code></p><br><br><h3>锰价上涨8%，锰酸锂材料板块迎来行情</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https://jinpingmei-web.com.cn
+</code></p><br><br><h3>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>https://jinri-tongrenku.com.cn
+</code></p><br><br><h3>国内政策性降息落地，宽信用进程加速推进</h3><br><p>产业资本集中增持AI教育龙头，付费用户高增获资本布局。<br><br> | 来源：<code>https://jinriheiliao.cn
+</code></p><br><br><h3>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%</h3><br><p>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好。<br><br> | 来源：<code>https://jinritong.com.cn
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>全国县域商业体系建设完成，农村消费市场潜力持续释放。<br><br> | 来源：<code>https://jinritongrenku.com.cn
+</code></p><br><br><h3>全球新能源投资突破2万亿美元，中国占比超40%</h3><br><p>制造业PMI连续6个月位于扩张区间，行业景气度持续回升。<br><br> | 来源：<code>https://jinsique.org.cn
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>https://jintiantangman.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>人工智能与大模型应用（100条）。<br><br> | 来源：<code>https://jiqing-wangzhan.com.cn
+</code></p><br><br><h3>亿纬锂能储能订单爆发，前三季度业绩预增90%</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>https://jiu-jiu-shipin.com.cn
+</code></p><br><br><h3>多地发放亿元文旅消费券，直接带动消费超30亿</h3><br><p>葡萄牙经济增速达2.3%，旅游业持续拉动增长。<br><br> | 来源：<code>https://jiu-jiujiu.cn
+</code></p><br><br><h3>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒</h3><br><p>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算。<br><br> | 来源：<code>https://jiu-jiujiu.com.cn
