@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道</h3><br><p>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好。<br><br> | 来源：<code>https://xiangjiaovideos.cn
+</code></p><br><br><h3>中天科技海缆+储能协同：多元化能源企业的成长逻辑</h3><br><p>中韩经贸合作升级，双边自贸协定第二阶段谈判完成。<br><br> | 来源：<code>https://xiangshuichun.org.cn
+</code></p><br><br><h3>宁德时代动力电池技术：麒麟电池+M3P的技术领先性</h3><br><p>科技成长行情延续：AI算力、半导体、光模块的景气度排序。<br><br> | 来源：<code>https://xiangxiang-fu-zhai.com.cn
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>保险资管举牌绿电运营标的，长期配置价值获机构认可。<br><br> | 来源：<code>https://xiao-dashi.cn
+</code></p><br><br><h3>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客</h3><br><p>全国土壤污染状况详查完成，受污染耕地安全利用率达95%。<br><br> | 来源：<code>https://xiao-huangyou.com.cn
+</code></p><br><br><h3>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起</h3><br><p>人民币汇率大幅升值，航空造纸板块集体上涨。<br><br> | 来源：<code>https://xiao-lan-shipin.com.cn
+</code></p><br><br><h3>全国二手车交易量上半年突破1000万辆，流通市场活跃</h3><br><p>美联储降息25BP符合市场预期，全球股市迎来普涨行情。<br><br> | 来源：<code>https://xiao-lanshipin.com.cn
+</code></p><br><br><h3>东北振兴政策升级，东北本地股板块走强</h3><br><p>全国红树林面积增至3万公顷，成为海洋生态保护标杆。<br><br> | 来源：<code>https://xiao-mitao.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善</h3><br><p>汉缆股份涨超3.9%，电网投资带动订单增长。<br><br> | 来源：<code>https://xiao-shimei.com.cn
+</code></p><br><br><h3>头部机构组团到访核电设备龙头，新机组中标订单披露</h3><br><p>跨境电商出口高增，跨境电商板块全线爆发。<br><br> | 来源：<code>https://xiao-wu-nu.com.cn
+</code></p><br><br><h3>上半年全国软件业营收同比增长11.8%，数字产业持续向好</h3><br><p>华友钴业全产业链布局：新能源金属的全球龙头成长路径。<br><br> | 来源：<code>https://xiaobaogou.com.cn
+</code></p><br><br><h3>国内大模型安全检测平台上线，为所有备案模型提供合规检测</h3><br><p>中国中车全球轨道交通布局：一带一路带来的增量空间。<br><br> | 来源：<code>https://xiaobaoxunhuazaixianguankan.cn
+</code></p><br><br><h3>铁矿石价格反弹10%，铁矿上市公司盈利边际改善</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://xiaocaoav.cn
+</code></p><br><br><h3>东方财富放量大涨，券商板块异动激活市场人气</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>https://xiaochaihu.com.cn
+</code></p><br><br><h3>全国营商环境评价排名发布，一线城市整体进入全球第一梯队</h3><br><p>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心。<br><br> | 来源：<code>https://xiaogoukan-fan.com.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>恒瑞医药创新药管线：国内创新药龙头的研发投入回报。<br><br> | 来源：<code>https://xiaogouzhuiman.com.cn
+</code></p><br><br><h3>外资机构集中调研种业龙头，转基因商业化落地节奏披露</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://xiaohoukanfan.com.cn
+</code></p><br><br><h3>国产综艺节目海外版权输出量同比增长60%</h3><br><p>全国生物多样性观测网络建成，覆盖超3000个生态点位。<br><br> | 来源：<code>https://xiaohuangyou.com.cn
+</code></p><br><br><h3>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>https://xiaohukanfan.com.cn
+</code></p><br><br><h3>机构资金集中买入航发动力1.8亿，军工龙头获机构抱团</h3><br><p>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起。<br><br> | 来源：<code>https://xiaolanheiliaowang.cn
