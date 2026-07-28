@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分47秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万</h3><br><p>天际股份放量上涨4.3%，锂电材料业务盈利修复。<br><br> | 来源：<code>https://zuoai-shipin.com.cn
+</code></p><br><br><h3>金砖国家新成员全部完成入盟流程，成员国总数达15国</h3><br><p>百度文心大模型4.5版本发布，推理速度提升400%成本下降70%。<br><br> | 来源：<code>https://zuoshanai.com.cn
+</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>国电南瑞电网自动化优势：国内电网信息化龙头的价值。<br><br> | 来源：<code>https://zuozuomu-ming-xi.com.cn
+</code></p><br><br><h3>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>https://zurbda.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>国内宠物友好景区破千家，携宠游订单同比增长180%。<br><br> | 来源：<code>https://008-pg-official-login.com
+</code></p><br><br><h3>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%</h3><br><p>文旅部推出100条乡村精品线路，带动县域文旅消费。<br><br> | 来源：<code>https://008pg-guoji-app.com
+</code></p><br><br><h3>国产AI芯片算力突破256TOPS，支撑大模型高效运行</h3><br><p>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人。<br><br> | 来源：<code>https://1024hegongchang.com.cn
+</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>中通客车异动拉升4.1%，海外市场拓展加速。<br><br> | 来源：<code>https://1024xp.com.cn
+</code></p><br><br><h3>全国大学生就业帮扶行动启动，国企新增岗位超80万</h3><br><p>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑。<br><br> | 来源：<code>https://17-3-guanyu-xing-jiaoyu-xuanchuanpian.com.cn
+</code></p><br><br><h3>大模型在农业领域应用，病虫害识别准确率超97%</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>https://17c18qicao.com.cn
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>公募基金集中调研电力现货交易标的，交易系统订单翻倍。<br><br> | 来源：<code>https://17caowang.com.cn
+</code></p><br><br><h3>全国马术赛事超百场，马术运动从小众走向大众</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>https://17capcc.com.cn
+</code></p><br><br><h3>医疗器械集采结果温和，医疗设备标的全线异动</h3><br><p>全国居民人均体育消费支出同比增长15%，运动成为生活方式。<br><br> | 来源：<code>https://17ccc.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>https://17cccc.com.cn
+</code></p><br><br><h3>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>https://17ccccyiqicao.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光</h3><br><p>保险资管扎堆调研养老产业标的，养老社区入住率数据披露。<br><br> | 来源：<code>https://17ccchigua.com.cn
+</code></p><br><br><h3>中国电建新能源电站运营：电力工程龙头的第二成长曲线</h3><br><p>大熊猫野生种群数量突破2000只，受威胁等级下调至易危。<br><br> | 来源：<code>https://17cccmeiridasai.com.cn
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>金砖国家新成员全部完成入盟流程，成员国总数达15国。<br><br> | 来源：<code>https://17cchigua.com.cn
+</code></p><br><br><h3>极端高温天气来袭，电力运营板块集体拉升</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>https://17ccn.com.cn
+</code></p><br><br><h3>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期</h3><br><p>农村物流体系建设规划，乡村物流标的全线异动。<br><br> | 来源：<code>https://17ccom.com.cn
